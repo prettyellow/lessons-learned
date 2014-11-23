@@ -16,4 +16,5 @@ If you want to learn more visit the site below and purchase the book, its worthw
 http://www.amazon.com/Pragmatic-Programmer-Journeyman-Master/dp/020161622X/ref=sr_1_1?ie=UTF8&qid=1416516135&sr=8-1&keywords=the+pragmatic+programmer
 
 And this picture is a good summary of the class!
+
 http://www.library.illinois.edu/export/diglit/images/diglit.jpg
