@@ -1,0 +1,1 @@
+http://www.google.com/imgres?imgurl=http%3A%2F%2Fupload.wikimedia.org%2Fwikipedia%2Fcommons%2Fa%2Faa%2F7.62_NATO_tracer_rounds%2C_in_stripper_clip.JPG&imgrefurl=http%3A%2F%2Fen.wikipedia.org%2Fwiki%2FTracer_ammunition&h=432&w=663&tbnid=mPlkm87XK2AY1M%3A&zoom=1&docid=mMn9Uzu-n2nATM&ei=PABxVJDFO4vIsQSXiYKwDw&tbm=isch&ved=0CB0QMygAMAA&iact=rc&uact=3&dur=193&page=1&start=0&ndsp=13
